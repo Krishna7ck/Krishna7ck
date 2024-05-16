@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Krishna7ck
-- 👀 I’m interested in UI UI Designer
+- 👀 I’m interested in UX UI Designer
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
